@@ -1,1 +1,1 @@
-just fun, sory admin!!
+if you hacked and see my repository, sory admin!! just fun (:
